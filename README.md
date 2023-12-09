@@ -1,0 +1,2 @@
+# aruzhan
+ermekbaeva aruzhan
